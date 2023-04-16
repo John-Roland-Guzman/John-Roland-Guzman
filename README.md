@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi I'm John Roland Guzman, a third year BSIT College Student from Central Philippine University
 - My favorite things to do are:
 - Spend time with my pets
 - Touch fluffy animals
